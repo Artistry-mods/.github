@@ -8,4 +8,4 @@ They made all the Blockixel textures for fun. They're crazy.
 The first coder to have joined the project. And ~~I hate my life~~ they hate there life because of, mostly, updating.
 
 ## Join the dc
-[HERE JOIN BRUH](https://discord.gg/jufZucSF24)
+[HERE, JOIN, BRUH](https://discord.gg/jufZucSF24)
